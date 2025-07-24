@@ -69,9 +69,8 @@ I've worked with **international agencies and startups**:
 ---
 
 ### 📫 Let’s Connect
-- 📧 Email: [jaskaransingh@example.com](mailto:jaskaransingh@example.com)
-- 💼 LinkedIn: [linkedin.com/in/jaskaransingh](https://linkedin.com/in/jaskaransingh)
-- 🌐 Portfolio: [your-portfolio.com](https://your-portfolio.com)
+- 📧 Email: [jaskaransingh@example.com](mailto:jasskaranofficial@gmail.com)
+- 💼 LinkedIn: [linkedin.com/in/jaskaransingh](https://www.linkedin.com/in/jaskaran-singh-20665311a/)
 
 ---
 
